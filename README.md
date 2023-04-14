@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @bigsnowballhehe
-- 👀 I’m interested in 睡觉
-- 🌱 I’m currently learning 吃饭
+- 👀 I’m interested in Zzzzzzz~
+- 🌱 I’m currently learning code
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
